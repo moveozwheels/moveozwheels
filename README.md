@@ -22,10 +22,12 @@ Melbourne, Sydney, Brisbane, Adelaide, Perth & Regional Australia.
 ## Website
 https://www.moveozwheels.com.au/
 
+## Helpful Resources
+- [Interstate Car Transport Guide Australia](https://www.notion.so/Interstate-Car-Transport-Guide-Australia-35ed282736f280b88228eecbca5c4309)
+
 ## Connect With Us
-- Behance
-- LinkedIn
-- Facebook
-- Pinterest
+- [Behance](https://www.behance.net/moveozwheels)
+- [Facebook](https://www.facebook.com/moveozwheels/))
+- [Instagram](https://www.instagram.com/moveozwheels/)
 
 Professional interstate vehicle logistics solutions across Australia.
